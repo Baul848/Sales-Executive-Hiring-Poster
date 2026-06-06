@@ -1,6 +1,5 @@
 Sales Executive Hiring Announcement Poster
 1. Topic / Problem
-2. 
 . Designing a professional hiring announcement poster for the company
 . The poster announces that the company is actively looking for a new Sales Executive
 . Created to attract suitable candidates through social media platforms
